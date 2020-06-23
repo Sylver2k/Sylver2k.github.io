@@ -13,3 +13,5 @@ und ist seine Verbündete. Als er Zeuge eines Mordes wird, beginnt er mit Chloe 
 * Wunschausstellung
 
 > Ich geb' Ihnen mein Hemd - und wie Sie sehen können, trägt der Teufel tatsächlich Prada.
+
+<img src="https://vignette.wikia.nocookie.net/lucifer7737/images/2/2a/39156b1c-77d2-4549-a91b-c064957192e9.png/revision/latest?cb=20190504181316&path-prefix=de"/>
