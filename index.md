@@ -11,3 +11,5 @@ und ist seine Verbündete. Als er Zeuge eines Mordes wird, beginnt er mit Chloe 
 * Unsterblichkeit
 * Fliegen
 * Wunschausstellung
+
+> Ich geb' Ihnen mein Hemd - und wie Sie sehen können, trägt der Teufel tatsächlich Prada.
